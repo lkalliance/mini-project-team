@@ -1,4 +1,4 @@
-# mini-project-team
+# TEAM ALMOST-ALL-FROM-MINNESOTA!
 
 # Ideas we are considering:
 
